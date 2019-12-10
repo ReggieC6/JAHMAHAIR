@@ -1,2 +1,2 @@
 # JAHMAHAIR
-https://reggiec6.github.io/JAHMAHAIR/.
+https://reggiec6.github.io/JAHMAHAIR/
